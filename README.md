@@ -1,7 +1,7 @@
 # 💫 Hi 👋, I'm Amit A Chinchwade
 **A passionate || DevOps JaVa ||  from India**
 
-Email Me 👉 ✉️ **amitchinwade999@gamil.com** & < ।। ॐ नमः शिवाय ।। >; 😇
+Email Me 👉 ✉️ **amitchinwade999@email.com** & < ।। ॐ नमः शिवाय ।। >; 😇
 
 - 🔭 **I’m currently Studying on:** Full stacked JaVa developer info here 
 - 🌱 **I’m currently learning:** Enter in Tech here 👨🏻‍💻
