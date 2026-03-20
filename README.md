@@ -1,15 +1,15 @@
-# 💫 Hi 👋, I'm Amit A Chinchwade
+# 💫 Hi 👋, I'm Amit अ Chinchwade
 **A passionate || DevOps JaVa ||  from India**
 
 Email Me 👉 ✉️ **amitchinwade999@email.com** & < ।। ॐ नमः शिवाय ।। >; 😇
 
-- 🔭 **I’m currently Studying on:** Full stacked JaVa developer info here 
-- 🌱 **I’m currently learning:** Enter in Tech here 👨🏻‍💻
-- 🤔 **I’m looking for helping with:** Your PC & LapTop's Repairing 🛠️
-- 💬 **Ask me about:** Collaboration,Gaming, Tech Support 🈸
-- 📫 **How to reach me:** Enter your email here 你需要什麼 ❓
+- 🔭 **I’m currently Studying on:** Full stacked JaVa Developer inFo Here 
+- 🌱 **I’m currently learning:** Enter in Tech Here 👨🏻‍💻
+- 🤔 **I’m looking for helping with:** Your PC & LapTop's Repaîrïng 🛠️
+- 💬 **Ask me about:** Çollaßorãtiōn,Gaming, Tech SupporTed 🈸
+- 📫 **How to reach me:** Enter Yøür email HéRè 你需要什麼 ❓
 - 😄 **Pronouns:** अमित चिंचवडे  🇮🇳
-- ⚡ **Fun fact:** मला Tech आवडते आणि मला TechNologiYa लय प्रेम आहे 💖
+- ⚡ **Fun fact:** मला Tèçh आवडते आणि मला TechNologiYa लय प्रेम आहे 💖
   
 ## 🌐 Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/https://discord.com/invite/eeC4DVRMrU) [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)] [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/amit_chinchwade) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)] [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)] [![Reddit](https://img.shields.io/badge/Reddit-%23FF4500.svg?logo=Reddit&logoColor=white)] [![Twitch](https://img.shields.io/badge/Twitch-%239146FF.svg?logo=Twitch&logoColor=white)](https://twitch.tv/amitchinchwade) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)] [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@@amitcgamer) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:amitchinwade999@gmail.com) 
