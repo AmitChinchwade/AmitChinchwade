@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Amit अ Chinchwade
-**A passionate || ------- ||  from India**
+**A passionate || Java Coding ||  from India**
 
 Email Me 👉 ✉️ **amitchinwade999@email.com** & < ।। ॐ नमः शिवाय ।। >; 😇
 
